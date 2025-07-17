@@ -1,5 +1,5 @@
-<h5 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　      ˳·˖✶   ✦　　
+<h5 align="center"> 　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
 <h5 align="center"> ★Selective mute
 
 ☆Nickname₊ ⊹ Whisp
@@ -47,6 +47,8 @@
    
  <h5 align="center">
   <img src=https://i.pinimg.com/1200x/b1/e9/65/b1e9651b80ad0befc79ed4c688c50b89.jpg>
+<h5 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
 
 </p>
 </p>
