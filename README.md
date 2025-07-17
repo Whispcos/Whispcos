@@ -43,7 +43,9 @@
 
 ☆ fake systems and Endogenic systems
   <h5 align="center">
-  <img src= https://64.media.tumblr.com/a80c2a9fc9ee910f76bf2dba00be5231/13aa1e7b141e9a2e-98/s540x810/2d0dc8d404985ae328334c832b4cb4f27fa69206.gifv/>
+ <h5 align="center">
+  <img src=https://i.pinimg.com/1200x/b1/e9/65/b1e9651b80ad0befc79ed4c688c50b89.jpg>
+
 </p>
 </p>
 <!--
