@@ -1,5 +1,51 @@
-## Hi there 👋
+<h5 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　      ˳·˖✶   ✦　　
+<h5 align="center"> ★Selective mute
 
+☆Nickname₊ ⊹ Whisp
+
+☆Pronouns₊ ⊹ any
+
+☆age₊ ⊹26
+
+☆other links₊ ⊹ you can find on ponytown as whisp or by my discord but only ask if we are friends
+<h5 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  
+<p align="center">
+  <img src=https://i.pinimg.com/736x/31/88/25/318825746121e1eb52844a2f2dc2d788.jpg>
+  
+  <h5 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+    <h5 align="center"> Strict DNI breaking any of these will be blocked with no warning
+
+☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
+
+☆ please don't bug me if i am no verbal or hiding ! Seriously it’s annoying
+
+☆Minors DNI!
+
+☆ Any jokes about death or sensitive topics will be immediately blocked (do not vent to me unless I say u can!!)
+
+☆ DO NOT copy my ponies!!
+
+☆ DNIUF or DNIUCF in my bio means I do not want to interact with anyone but friends, so pls be kind a leave me be!
+
+☆ RP DNI I am not rping! and do not want to!! I will only do it with my closet friends.
+
+☆ When I say your making me uncomfy or give warnings pls back off, I want to feel comfortable playing Pt
+
+☆ unless I know you please leave me alone if I am drawing
+
+☆Rp DNI I do not rp with non friends.
+
+☆ I do not talk much with non friend do not force me
+
+☆ if say leave me be then leave me be
+
+☆ fake systems and Endogenic systems
+  <h5 align="center">
+  <img src= https://64.media.tumblr.com/a80c2a9fc9ee910f76bf2dba00be5231/13aa1e7b141e9a2e-98/s540x810/2d0dc8d404985ae328334c832b4cb4f27fa69206.gifv/>
+</p>
+</p>
 <!--
 **Whispcos/Whispcos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
