@@ -15,7 +15,8 @@
   <img src=https://i.pinimg.com/736x/31/88/25/318825746121e1eb52844a2f2dc2d788.jpg>
   
   <h5 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-    <h5 align="center"> Strict DNI breaking any of these will be blocked with no warning
+  
+   <h5 align="center"> Strict DNI breaking any of these will be blocked with no warning
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
 
@@ -42,7 +43,8 @@
 ☆ if say leave me be then leave me be
 
 ☆ fake systems and Endogenic systems
-  <h5 align="center">
+ <h5 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+   
  <h5 align="center">
   <img src=https://i.pinimg.com/1200x/b1/e9/65/b1e9651b80ad0befc79ed4c688c50b89.jpg>
 
