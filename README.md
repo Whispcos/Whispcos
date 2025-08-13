@@ -8,6 +8,9 @@
 
 ☆age₊ ⊹26
 
+☆[Galaxy system](https://pluralkit.xyz/s/ucahsy)☆
+☆[patreon](https://www.patreon.com/c/whispycrispy)☆
+☆[Strawpage](https://whisp.straw.page)☆
 <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
 <p align="center">
