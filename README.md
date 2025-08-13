@@ -8,7 +8,6 @@
 
 ☆age₊ ⊹26
 
-☆my system ₊ ⊹ https://pluralkit.xyz/s/ucahsy
 <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
 <p align="center">
