@@ -8,7 +8,7 @@
 
 ☆age₊ ⊹26
 
-☆other links₊ ⊹ you can find on ponytown as whisp or by my discord but only ask if we are friends
+☆my system ₊ ⊹ https://pluralkit.xyz/s/ucahsy
 <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
 <p align="center">
