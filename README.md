@@ -52,9 +52,28 @@
    
  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
- <h5 align="center"> Hay yah Dbd players!
+ <h3 align="center"> Hay yah Dbd players!
    
- <h5 align="center"> I'm a Xenomorph as well as trickster  killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
+ <h3 align="center"> I'm a Xenomorph as well as trickster  killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
+
+<h3 align="center"> ⋆｡°✩fav things⋆｡°✩
+
+  
+✩Devil May cry
+
+✩ Mass effect
+
+✩ALiens 
+
+✩Predators
+
+✩Date Everything
+
+✩cyberpunk
+
+✩ scifi movie ^^
+    <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+    
    <img src=https://camo.githubusercontent.com/6d675ede520204f592aa66927e807f011c6c2af43e21013c86710647d4ce59f3/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>
  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
    <h5 align="center">
