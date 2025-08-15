@@ -49,9 +49,25 @@
   
  <h5 align="center">
   <img src=https://i.pinimg.com/1200x/b1/e9/65/b1e9651b80ad0befc79ed4c688c50b89.jpg>
+   
  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-    <h5 align="center">
-  <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/957cd5ea-23f4-403b-9cf3-7ff9299a3f21/dk8ja00-1ebd692a-731b-42a7-8608-a6edd8686bb6.png/v1/fill/w_1122,h_712,q_70,strp/untitled52_20250728215907_by_lovestarscream_dk8ja00-pre.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9ODEyIiwicGF0aCI6IlwvZlwvOTU3Y2Q1ZWEtMjNmNC00MDNiLTljZjMtN2ZmOTI5OWEzZjIxXC9kazhqYTAwLTFlYmQ2OTJhLTczMWItNDJhNy04NjA4LWE2ZWRkODY4NmJiNi5wbmciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.LL2UCfKdpmVefTsy7YJ3pIE9m2LO4wOnOffyF_xdqMw> 
+  
+ <h5 align="center"> Hay yah Dbd players!
+   
+ <h5 align="center"> I'm a Xenomorph as well as trickster  killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
+   <img src=https://camo.githubusercontent.com/6d675ede520204f592aa66927e807f011c6c2af43e21013c86710647d4ce59f3/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>
+ <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+   <h5 align="center">
+<img src=https://64.media.tumblr.com/ccf727379da594a7ee2bf33751f0c426/tumblr_oud3yuOuqa1qbxh0uo1_500.gif>
+       <h5 align="center">
+         
+
+
+
+  
+  <img src=https://i.pinimg.com/originals/2d/1c/37/2d1c370d6a87403cdad869b136054a1e.gif>
+  
+<h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 <h3 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
 
