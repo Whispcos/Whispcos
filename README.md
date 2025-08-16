@@ -54,7 +54,7 @@
   
  <h3 align="center"> Hay yah Dbd players!
    
- <h3 align="center"> I'm a Xenomorph as well as trickster  killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
+ <h3 align="center"> I'm a Xenomorph as well as wesker killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
 
 <h3 align="center"> ⋆｡°✩fav things⋆｡°✩
 
